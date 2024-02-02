@@ -15,7 +15,7 @@
 - 📸 Cinematography
 - 📷 Photography
 
-🖌️ I love creating content! Find my videos on [YouTube](https://www.youtube.com/channel/UCDXAYJpiEOT84YddoJxXsjw) and my photos on [Instagram](https://www.instagram.com/p3_pioneer/).
+🖌️ I love creating content! Find my videos on [YouTube](https://www.youtube.com/channel/UCDXAYJpiEOT84YddoJxXsjw) and my photos on [Instagram](https://www.instagram.com/pujii.jpeg/) and [Behance](https://www.behance.net/pujanpatel6).
 
 💻 Proficient in:
 - 🎬 Video Editing (Premiere Pro, CapCut)
